@@ -1,1 +1,0 @@
-# Medoka-Akayashi.github.io
